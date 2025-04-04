@@ -20,7 +20,7 @@ The *only* coin that could crash TradFi with nothing but piss jokes, high design
 ### **PDF Highlights (Preview):**
 
 **Page 1: Executive Summary**
-> “In an era of evaporating trust and illiquid markets, G-BKE delivers a golden paradigm shift—anchoring decentralized saturation with unmatched trickle dynamics.”
+> “In an era of evaporating trust and illiquid markets, Global Bukkake Syndicate delivers a golden paradigm shift anchoring decentralized saturation with unmatched trickle dynamics.”
 
 **Page 2: Vision Statement**
 > *“To democratize deluge by transforming metaphysical liquidity into memetic capital.”*
