@@ -2,10 +2,18 @@
 
 **By: McKringey 69/420 & Associates**  
 
-## **Global Bukkakee Coin** 
+## **Global Bukkakee Coin**
 The *only* coin that could crash TradFi with nothing but piss jokes, high design, and a glimmer of truth about our broken economy.
 
 **“Roadmap to Wetness: A Strategic Framework for Fluid Global Dominance.”**
+
+---
+
+## Foreward
+
+💦 **Definition:**  
+**Jerkonomics (n.)**  
+> The study and strategic deployment of sudden, self-serving financial decisions made without foresight, ethics, or a single shred of community alignment.
 
 ---
 
@@ -37,14 +45,15 @@ Simulate liquidity events via NFT urinal cakes.”
 
 ---
 
-**Design Notes:**
+### **Design Notes:**
 - Gradient gold cover, with watermark shaped like a puddle  
 - Helvetica Neue: because we’re still classy  
 - Graphs pointing up… then leaking downward
 
 ---
 
-**Acknowledgments** under:  
+### **Acknowledgments**  
 > *“Visionaries who dared to dampen the system.”*
 
 Say the word and I’ll mock up page templates. Let’s build the wet dream.
+
